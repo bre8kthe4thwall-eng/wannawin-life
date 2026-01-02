@@ -1,0 +1,2 @@
+# wannawin-life
+Casino Links
